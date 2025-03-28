@@ -1,7 +1,7 @@
 ## Hi there  PEPE CAR 
 
 https://solsale.app/presale/8LVUrsTNR69eJL4cSgywTjqz7x941de4BP9jQbrkQSj1<!--
-**ethq8/ethq8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**PEPECAR ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
